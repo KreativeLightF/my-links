@@ -1,2 +1,4 @@
 # oooo-i-wanna-merge
 this might become my own multi-link prject i wonder if i can get a domain!!
+
+gotta merge to get the badge hehahahaha
